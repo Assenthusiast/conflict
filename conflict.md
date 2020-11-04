@@ -1,4 +1,4 @@
 conversation with käsper
-fastist saab juppi
-lets goo
+fastist saab jupp
+no
 lets go
